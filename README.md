@@ -15,4 +15,4 @@ Analiza fotos y detalles, entrega un informe con estado y calcula un valor de me
 - Instagram: [@mansocodigo](https://instagram.com/mansocodigo)
 
 ---
-🚧 Construyendo en público desde Buin para el mundo.
+🚧 Construyendo en público desde -Puente Alto- para el mundo.
